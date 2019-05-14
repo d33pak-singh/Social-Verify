@@ -1,3 +1,3 @@
-Get Verified on Twitter by adding this cool extension brought to you by one and only Deepak Singh!
+Get Verified on Twitter by adding this cool extension.
 
-Hawwwwt gallllz call me: 9015696878
+<b>Entertainment purpose only</b>
